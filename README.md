@@ -25,4 +25,4 @@
 所有资源完全免费，无需注册或会员购买，点击即可观看。平台免去了所有复杂的操作流程，简化了观看体验，让你随时随地都能访问并享受视频内容。放技术，保证你在任何终端上都能获得极速加载和高清播放体验，方便你在任何时间享受最优质的娱乐内容。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/xlin156/34678 ）</span>
